@@ -1,1 +1,1 @@
-"# Derin-renme-ile-arap-Kalite-Tahmini" 
+"# Derin-renme-ile Sarap-Kalite-Tahmini" 
